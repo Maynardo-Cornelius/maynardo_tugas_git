@@ -1,1 +1,1 @@
-hello my name is maynardo
+hello my name is maynardo, i am a programmer, i am learning at timedoor, my teacher is mr armani
